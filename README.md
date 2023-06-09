@@ -2,4 +2,4 @@
 
 Kuma Sushi Bar Secret passwords Codes Cheats unlimited coins Hacks dollars - Although Kuma sushi restaurant has displayed a lot of impressive content, it is actually still in the early testing stage. This means that a large number of plans for the game, including family design for visiting friends and other potential game mechanisms, are still under development. Even with timers, cooling times and weather forecasts, Kuma sushi bar is actually a Kuma Sushi Bar game codes that can be played and enjoyed offline. Offline and online games are not much different in gameplay. In most cases, some players only like to play offline games in the game, because random advertising will distract them from the game. Again, take Kuma sushi restaurant as an example. There is no such advertisement. Therefore, playing offline will only make you unable to enjoy any advertising and additional convenience.
 
-<a href="https://windmod.icu/kuma-sushi-bar/">Enter here</a>
+<a href="https://peatix.com/user/11574152/view">Enter here</a>
